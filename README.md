@@ -12,4 +12,3 @@ Here are some ideas to get you started:
 -->- 💬 Ask me about ...
 - 📫 How to reach me: hemal.eng068@gmail.com
 - 😄 Pronouns: He / Him
-- ⚡ Fun fact: I'm creative but poor on study multiple things at a time
